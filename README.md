@@ -1,1 +1,0 @@
-# hrnidglqgg.github.io
